@@ -7,6 +7,3 @@ cuarto paso.
 No se que vamos
 
 bla bla bla
-Tu que dices
-
-espacio
